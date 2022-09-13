@@ -16,6 +16,20 @@ La economia de Espana se basa en el tourismo, la agricultura, y la produccion de
 
 Espana es una monarquia parlimentaria, que significa que la reina o el rey no gobiernar; son figuras simbolicas con mu poco poder. La gran majoria de control lo tiene el Gobierno y el Parlamento. 
 
+**Tema Numero 1**
+
+¿Qué compone una familia en una sociedad hispana?
+
+En la socieded hispana el termino de familia tipicamente solo se aplica a la gente que esta relacionada por sangre (un ancestro comun). Aun que si se puede referir a un equipo o a un grupo de amigos como familia, no es tan comun como aqui en los EE.UU. 
+                                            	
+¿Cuáles son algunos aspectos importantes de los valores y la vida familiar en las sociedades hispanas?
+
+ En paises hispanohablentes la cercania y el contacto es muy importortante entre las familias. En muchos paises incluida Espana, es comun que los hijos y los abuelos vivan con los padres y muchos ninos no se van de casa hasta que graduen de la universidad (o aun mas tarde en muchos casos). Pasar tiempo con la familia a diario es una prioridad y se come con la familia en todas las comidas.
+
+¿Qué retos enfrentan las familias de hoy?
+
+Hoy en dia es mas dificil tener una familia en algunos respectos pero en otros es mas facil. Con toda la tecnologia y informacion que los padres tienen despoibles, pueden aprenden mas sobre como criar a su hijo y facilitarlo, pero al contrario la technologia y informacion tambien puede disraer y separar las familias. Addicionalmente, los precios hoy en dia han subido mucho y es mas dificil conseguir los productos necesarios para tus ninos. 
+
 **La Cultura Publica**
 
 Los artistas mas famosos de Espana se conozen por todo el mundo pero son especialmente popular en regiones hispanohablantes. Unos ejemplos incluyen Rosalia, Enrique Iglesias, Julio Iglesias, David Bisbal, Ricky Martin, Miguel Bose, David Bustamante, y Shakira. 
