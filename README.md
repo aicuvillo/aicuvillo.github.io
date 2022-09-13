@@ -2,7 +2,7 @@
 
 Spanish Project
 ===============
-**La Geographia y el Clima de Espana*
+**La Geographia y el Clima de Espana**
 
 Espana queda en el sur de Europa en la Península Ibérica al lado de Francia, Andorra, y Portugal pero tambien le pertenece unas ciudades que quedan en Morocco. Las costas de Espana llegan desde el mar Atlantico hasta el mar Mediterraneo y tambien hay islas Espanolas en los dos mares. Las Islas Canarias estan en el Atlantico, y las Islas Baleares estan en el Mediterraneo. La majoria del pais es bastante plano, pero hay montanas mas hacia el Norte. 
 
