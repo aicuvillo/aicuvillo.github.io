@@ -39,3 +39,18 @@ Hace click aqui para leer un articulo sobre la nueve estrella internacional Rosa
 **El Entretenimiento**
 
 En Espana la gente se entretiene mucho con el internet y applicaciones como tiktok, instagram, y youtube. Tambien se ve television y se va al cine como aqui. La unica difrencia en como la gente se entretiene en espana, es que alli la gente sale y socializa mucho mas. La gente siempre esta saliendo a comer algo, tomar algo, o a caminar con alguien. La gente siempre se esta encontrando con amigos y familia como alli todo es mas relajado y no tienen que estar corriendo de un lado al otro.
+
+**Organizaciones de Servicio**
+Aldeas Infantiles SOS es una organizacion que ayuda a los ninos que nececitan ayuda familiar. Sus servicios incluyen darle un sitio para vivir con una familia temporal a los ninos que tienen que irse de casa, ayudan a mantener familias juntas para que no se tengan que separar, y ayudan a que los ninos esten bien fisicamente,socialmente y mentalmente. Los objetivos de esta organizacion son aliviar problemas economicos, problemas relacionados con la educacion, de salud, sociales, y de comida para mejorar la vida de la joventud.
+
+https://www.aldeasinfantiles.es/
+
+Desarollo: El crecimiento o paso del tiempo
+
+Interconfesional: Que no se limita a solo una creencia religiosa
+
+Socio: Alguien que pertenece o ayuda a un grupo o associacion, que aveces incluye donandole dinero
+
+Impulsando: Ayudando o levantando algo (puede ser figuradamente o literalmente)
+
+Mediante: A traves de
